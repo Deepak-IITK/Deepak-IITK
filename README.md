@@ -1,0 +1,1 @@
+- 👋 Hi, I’m Deepak,I have materials background and mathematics brought me to machine learning. I’m currently learning ML and AI with future interest in solving real world problems with deep interest in mathematics,
